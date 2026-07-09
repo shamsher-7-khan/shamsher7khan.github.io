@@ -1,7 +1,7 @@
 # SHAMSHER KHAN
 ### **Assistant Field Engineer | Mechanical Design & Automation Specialist**
 📍 Delhi NCR (Targeting) / Bulandshahr, UP  
-📞 +91-7500709404 | 📧 [shamsher7khan@outlook.com](mailto:shamsher7khan@outlook.com) | 🔗 [LinkedIn Profile](https://linkedin.com/in/shamsher-7-khan)
+[📩 Email Me Directly](mailto:shamsher7khan@outlook.com) |  🔗 [LinkedIn Profile](https://linkedin.com/in/shamsher-7-khan)
 
 ---
 
